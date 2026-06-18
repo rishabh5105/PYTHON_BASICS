@@ -171,7 +171,7 @@
 ## qus - * karna h reverce pattern wala or forward wala and space wala less then and greater then wala bhi 
 
 
-
+# xrtljdtyyguh
 
 
 
